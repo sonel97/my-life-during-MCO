@@ -3,7 +3,7 @@ It would be a lie if I told people I was being productive during all of this, th
 ![](New%20folder/rampage.gif)
 
 
-It was fun and all but eventually I got bored and wanted to try to do something else and not so suprising i end up doing other thing besides doing actual school work. I decided that i want to learn to cook, even as far as looking for easy recipe to do. Then it struck me, how in the world I’m going to cook when I’m stuck in campus. At that moment I question my existance as a human. Am I going insane already, guess not
+It was fun and all but eventually I got bored and wanted to try to do something else and not so suprising i end up doing other thing besides doing actual school work. I decided that i want to learn to cook, even as far as looking for easy recipe to do. Then it struck me, how in the world I’m going to cook when I’m stuck in campus. At that moment I question my existance as a human. Am I going insane already?,I guess not
 
 ![](New%20folder/gif-cooking.gif)
 
